@@ -2,8 +2,8 @@
 강윤구 shhka7
 이동민 maro-001
 윤지호 hense333
-이예준 soisto
-김진수 starright0228
+이예준 Soisto
+김진수 starright1228
 김지원 tuttuskdk
 서준혁 202213133
 최선우 sunwoo456
